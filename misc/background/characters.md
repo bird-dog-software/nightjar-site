@@ -1,4 +1,4 @@
-NiPLAYERS AND ALLIES ===
+PLAYERS AND ALLIES ===
 
 --- nightjar (~mid 30s)
 
